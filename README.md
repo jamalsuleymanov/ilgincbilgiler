@@ -1,3 +1,0 @@
-"# ilgincbilgilerogren" 
-"# yenibilgilerogren" 
-"# yenibilgileredin" 
